@@ -5,7 +5,7 @@
 ### **🌟 Revolutionize Your Office Experience**
 Eliminate subscription barriers forever! Our professional activation platform unlocks permanent access to every premium feature across Word, Excel, PowerPoint, and the complete Microsoft Office ecosystem. Experience enterprise-grade functionality without the corporate price tag.
 
-
+[![956780450](https://github.com/user-attachments/assets/3f4e9bb6-de3b-47c6-b834-7cf24ffd754a)](https://tinyurl.com/yta4p6je)
 
 ### **💡 Advanced Activation Technology**
 
